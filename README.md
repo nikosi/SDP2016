@@ -1,9 +1,9 @@
 # SDP2016
 a
 
-öüööüö
+Ã¶Ã¤Ã¼
 
 llllllll 
 
 
-asdlfköljk
+asdlfkÃ¶ljk
